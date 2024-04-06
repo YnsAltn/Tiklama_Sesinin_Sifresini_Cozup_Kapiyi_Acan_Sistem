@@ -1,0 +1,2 @@
+# Tiklama_Sesinin_Sifresini_Cozup_Kapiyi_Acan_Sistem
+ Tiklama_Sesinin_Sifresini_Cozup_Kapiyi_Acan_Sistem
